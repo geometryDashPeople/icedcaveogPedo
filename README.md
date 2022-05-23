@@ -19,3 +19,6 @@ funniest part
 theres more but im LAZY
 
 add me on discord anishgacharya#9191 for more shits
+
+PS: all image is spoofed with a better discord plugin, to protect identity
+thank you PEOPLE for ss's
